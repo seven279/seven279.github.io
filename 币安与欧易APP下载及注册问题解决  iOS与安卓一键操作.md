@@ -7,10 +7,13 @@
 身份证原件：有效期需超过 60 天，用于后续身份认证
 合规密码：提前准备 8-32 个字符的组合，需包含大写字母、小写字母、数字及特殊符号（如！@#$% 等）
 二、详细注册步骤（图文指引）
+
 欧易OKX（海外）注册地址: 
 www.okx.com/join/75360361
+
 币安Binance（海外）海外注册地址: 
 www.binance.com/zh-CN/join?ref=LD33MNM1
+
 国内注册（欧易/币安）合集安装包下载: 
 www.5okx.cc
 
@@ -19,10 +22,13 @@ Here is the English translation of your provided text:
 
 OKX Official Download Entry:
 To obtain the official OKX app installation package, the key is to find the correct official channel and avoid downloading counterfeit or risky third-party versions. The process is actually very simple—you only need to visit the official website through your browser.
+
 OKX (Overseas) registration link:
 www.okx.com/join/75360361
+
 Binance (Overseas) registration link:
 www.binance.com/zh-CN/join?ref=LD33MNM1
+
 Domestic registration (OKX/Binance) combined installation package download:
 www.5okx.cc
 
