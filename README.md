@@ -2,14 +2,11 @@
 
 注册官方连接：
 
-欧易OKX（海外）注册地址: 
-www.okx.com/join/75360361
+[点击进入欧易OKX（海外）注册地址](www.okx.com/join/75360361)
 
-币安Binance（海外）海外注册地址: 
-www.binance.com/zh-CN/join?ref=LD33MNM1
+[点击进入币安Binance（海外）海外注册地址](www.binance.com/zh-CN/join?ref=LD33MNM1)
 
-国内注册（欧易/币安）合集安装包下载: 
-www.5okx.cc
+[点击进入大陆注册（欧易/币安）合集安装包下载](www.5okx.cc)
 
 Here is the English translation of your provided text:
 
