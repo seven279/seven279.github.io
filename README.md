@@ -30,13 +30,13 @@
 ## 限时福利——新人注册领保底20+U比特币盲盒 🎁
 
 ### 欧易OKX（海外）注册地址: 
-www.okx.com/join/75360361
+www.okx.com/join/AOE8373918
 
 ### 币安Binance（海外）海外注册地址: 
 www.binance.com/zh-CN/join?ref=LD33MNM1
 
 ### 大陆注册（欧易/币安）合集安装包下载: 
-www.5okx.cc
+www.bn999.cc
 
 
 
@@ -44,13 +44,13 @@ OKX Official Download Entry:
 To obtain the official OKX app installation package, the key is to find the correct official channel and avoid downloading counterfeit or risky third-party versions. The process is actually very simple—you only need to visit the official website through your browser.
 
 OKX (Overseas) registration link:
-www.okx.com/join/75360361
+www.okx.com/join/AOE8373918
 
 Binance (Overseas) registration link:
 www.binance.com/zh-CN/join?ref=LD33MNM1
 
 Domestic registration (OKX/Binance) combined installation package download:
-www.5okx.cc
+www.bn999.cc
 
 从浏览器打开注册；
 ## 欧易交易所APP概述🔥
