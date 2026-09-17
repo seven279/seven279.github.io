@@ -1,4 +1,8 @@
--okx官网 [https://bn999.cc](https://bn999.cc)
+# 欧交易所APP下载指南
+
+本文介绍欧交易所APP，okx交易所版本信息、下载安装方法以及相关使用说明。
+
+- okx官网：[https://bn999.cc](https://bn999.cc)
 
 # OKX
 
